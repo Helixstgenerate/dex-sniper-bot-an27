@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with instant Automation Script for dex sniper bot | multi-chain-support + token-launch-monitoring, the #1 dex sniper bot. Includes multi-chain-support and
 
 
 
